@@ -1,0 +1,1 @@
+# yamazakiryutaro.github.io
